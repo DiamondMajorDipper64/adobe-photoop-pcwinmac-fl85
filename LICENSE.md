@@ -1,4 +1,4 @@
-# 
+# Avancé Adobe Photoshop flux de travail pour Mac OS | Instantané Adobe Photoshop flux de travail pour PC Windows. Avec filet de dégradé et design adaptatif — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
